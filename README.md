@@ -4,7 +4,7 @@
 ### Sound and Level Design by K.A. Shabesa
 ### Visuals and Art by Rishi Menon
 
-USE HEADPHONES FOR BEST EXPERIENCE!!!!!!!!!!
+USE HEADPHONES FOR BEST EXPERIENCE!!!!!
 
 ## A Game by ![Team De-Bug](https://i.imgur.com/C3eA4g8.png)
 
